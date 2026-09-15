@@ -1,1 +1,1 @@
-# exercio-dia-08-09
+# exercicios-dia-08-09
